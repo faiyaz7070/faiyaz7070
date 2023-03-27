@@ -12,6 +12,8 @@
 
 - 📫 How to reach me **malickfaiyaz415@gmail.com**
 
+- 📫 My Portfolio https://faiyaz7070.github.io/
+
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1jloSj0CXL-dyYhVvHbo9NJfalZAUVfvr/view?usp=sharing](https://drive.google.com/file/d/1jloSj0CXL-dyYhVvHbo9NJfalZAUVfvr/view?usp=sharing)
 
